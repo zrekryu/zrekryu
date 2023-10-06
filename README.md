@@ -2,7 +2,7 @@
 
 👋 Hello, I'm Zrekryu! I'm a tech enthusiast and a developer.
 
-I'm an introvert and nature-in-depth researching person.
+I'm an introvert, overthinker, and nature-in-depth researching person.
 
 ### 📱 Contact
 
