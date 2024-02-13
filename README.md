@@ -6,7 +6,7 @@ I'm an introvert, overthinker, and nature lover person.
 
 ### 📱 Contact
 
-📤 You can mail me on zrekryu@gmail.com
+📧 You can mail me on zrekryu@gmail.com
 
 ### Social Media
 
