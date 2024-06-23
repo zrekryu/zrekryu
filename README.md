@@ -2,8 +2,6 @@
 
 👋 Hello, I'm Zrekryu! I'm a tech enthusiast and a developer.
 
-I'm an introvert, overthinker, and nature lover person.
-
 ### 📱 Contact
 
 📧 You can mail me on zrekryu@gmail.com
