@@ -4,7 +4,7 @@
 
 ### 📱 Contact
 
-📧 You can mail me on zrekryu@gmail.com
+📧 You can email me at zrekryu@gmail.com
 
 ### Social Media
 
